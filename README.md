@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lavakit2k
 - 👀 I’m interested in Programming, Drawing, Gaming
-- 🌱 I’m currently in 12th class
+- 🌱 I’m currently a Student
 - 💞️ I’m looking to collaborate on...
 - 📫 How to reach me DC: .lavakit9704
 - ⚡ Fun fact: german 
